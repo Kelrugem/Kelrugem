@@ -1,1 +1,1 @@
-I am Kelrugem, a theoretical and mathematical physicist currently working on curved Yang-Mills-Higgs gauge theories; and working on extensions for Fantasy Grounds in my free time, mainly focusing on the D&D 3.5E and Pathfinder 1 ruleset :) 
+I am Kelrugem, a theoretical and mathematical physicist currently working on curved Yang-Mills-Higgs gauge theories; and working on extensions for Fantasy Grounds in my free time, mainly focusing on the D&D 3.5E and Pathfinder 1 ruleset, see https://forge.fantasygrounds.com/crafter/2/view-profile :) 
